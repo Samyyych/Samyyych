@@ -2,7 +2,7 @@
 - 👀 I’m interested in technology and creative projects.
 - 🌱 I’m currently learning programming and software development.
 - 💞️ I’m looking to collaborate on (((
-- 📫 How to reach me - Discord 
+- 📫 How to reach me - Discord: Samy(ы)4
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
